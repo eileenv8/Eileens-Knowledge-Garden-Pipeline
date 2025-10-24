@@ -5,7 +5,6 @@ tags:
   - fruiting-body
   - personal-essay/fruiting-body
 ---
-
 #fruiting-body #personal-essay 
 # The Green Woman
 ## modern mother yearns for, contemplates, becomes - wild.
@@ -54,7 +53,7 @@ Instead I say, "I hate myself. I'm fat. I'm weak. I'm dumb."
 
 I write from these gooey depths and at the end, he proofs it. 
 
-I suppose, in hindsight, that my melancholic navel-gazing was my answer to the great-grandmother's question: "What are you doing for yourself these days?"
+I suppose, in hindsight, that my melancholic navel-gazing was my answer to our son's great-grandmother's question: "What are you doing for yourself these days?"
 
 --
 
