@@ -23,6 +23,10 @@ https://archive.org/details/the-iron-giant_202402
 A 100-foot Iron robot lands in an American forest, is then discovered by a boy named Hogarth. He wanders alone, eating metal, confused -- he has forgotten who he is or where he comes from. Hogarth, obsessed by his majesty, befriends and protects the gentle giant, who is pursued by a CIA agent bent on his neutralization. Hogarth's friend who runs a junkyard art studio helps to hide the robot. When the Giant is confronted with violence, the group reckons with peace, mercy, and sacrifice. 
 
 # Pasted recommendation lists - unreviewed
+
+Elmo in trashland recommended by someone on calvin twitter
+
+-- 
 Check out recommendations in these past threads
 
 [Favorite classic family movies?](https://forums.welltrainedmind.com/topic/301185-favorite-classic-family-movies/)  
@@ -38,7 +42,7 @@ Check out recommendations in these past threads
 [Must-see movies, kids' edition](https://forums.welltrainedmind.com/topic/421433-must-see-movies-kids-edition/)  
 [Good cowboy or western movies](https://forums.welltrainedmind.com/topic/518853-good-cowboy-or-western-movies-for-younger-kids/)
 
-And, reprinting ideas of my lists from one of those threads here -- I'm doing my best to stretch the gap between age 3 and 11, but many of these really are going to be for age 5 or 6 up through age 12. Movies for a 3yo are tough. And I'll just throw in there that silent comedies are REALLY accessible and enjoyed by most kids! You just have to read aloud the occasional "title card" that pops up from time to time. 🙂
+And, reprinting ideas of my lists from one of those threads here -- I'm doing my best to stretch the fvgap between age 3 and 11, but many of these really are going to be for age 5 or 6 up through age 12. Movies for a 3yo are tough. And I'll just throw in there that silent comedies are REALLY accessible and enjoyed by most kids! You just have to read aloud the occasional "title card" that pops up from time to time. 🙂
 
 I left off Pixar and newer Disney movies, as most everyone already is familiar with those. 😉
 
